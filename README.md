@@ -1,0 +1,1 @@
+# NOMAR_CASE_STUDY
